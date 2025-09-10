@@ -1,4 +1,4 @@
-# Week 3 Fail Log 
+# Week 2-3 Fail Log 
 ---
 I've been finding the class itself easy, however, I have had some personal problems pop up.  This combined with my poor skills in time managment has caused an absence of my presence in this class that I will be quickly repairing.  I know that I should have communicated while it was happening and not afterwards.  
 
