@@ -1,0 +1,3 @@
+# Week 5 Fail Log 
+---
+This week has been relatively easy compared to the last few weeks.  I still need to work on proritising things.  My main issue is that I spent way too much time trying to come up with a cool anthropology fact (that I honestly could have probably just Googled something or asked AI) and by the time I completed that it was too late to work on my actual assignment.  Since I'm done with that portion I'll work on it anyway and hope I'll recieve credit.  If not, oh well, at least I'll get some neat experiences with these tools.  I like doing that stuff, anyway. While I probably would have completed the assignment if it wasn't for the Perusall glitch, that was just a nail in the coffin.   
